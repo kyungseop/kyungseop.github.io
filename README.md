@@ -1,2 +1,0 @@
-# kyungseop.github.io-
-blog
